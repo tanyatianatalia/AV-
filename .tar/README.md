@@ -1,4 +1,4 @@
-/storage/emulated/0/Intelligencehttps://osf.io/preprints/thesiscommons/ua6nx_v1
+https://osf.io/preprints/thesiscommons/ua6nx_v1
 
 # __Abstract:__ The Aetheric Synthesis of Reality Through the Arc-Length Axiom
 
